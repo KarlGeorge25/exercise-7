@@ -13,3 +13,10 @@ https://karlgeorge25.github.io/How-to/ Exercise 4
 
 https://karlgeorge25.github.io/exercise-5a/ Exercise 5
 
+
+
+
+
+
+
+https://karlgeorge25.github.io/exercise-7/
